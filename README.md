@@ -9,4 +9,4 @@ Filtre Kırıcı
 
 Deneme ve satın alma için Telegram:
 
-(https://google.com)[hi]
+(click here)[https://t.me/Kanva38support]
